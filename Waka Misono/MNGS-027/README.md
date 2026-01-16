@@ -4,6 +4,9 @@
 
 MNGS-027 When she gets drunk, the lady at the downtown bar becomes a French kisser and offers soothing, lewd creampie service with her sweet, dirty talk - this gives us regulars the strength to work hard tomorrow - Waka Misono
 
+## Download Torrent
+
+[https://github.com/filemjepang/JAV-Torrent/raw/refs/heads/main/Waka%20Misono/MNGS-027/MNGS-027.torrent](https://github.com/filemjepang/JAV-Torrent/raw/refs/heads/main/Waka%20Misono/MNGS-027/MNGS-027.torrent) 
 ## Screenshot
 
 ![](https://github.com/filemjepang/JAV-Torrent/blob/main/Waka%20Misono/MNGS-027/img/mngs00027jp-1.jpg) 
